@@ -1,0 +1,1 @@
+# Strict_Full_Preject
